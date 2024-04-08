@@ -1,2 +1,1 @@
-hola mierdas 
-Te la saco
+oe diay alejandro abri tu pc pues 
